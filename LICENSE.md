@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for macOS with Adobe Audition for macOS automatic Overlay: multi-cam-editing & lens-flare, the #1 overlay. Includes multi-cam-editing and lens-flare for a
 
 
 
